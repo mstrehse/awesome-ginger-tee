@@ -4,7 +4,7 @@ You know every developer gets sick from time to time and needs some healthy stuf
 
 This recipes, should make you good to go.
 
-200 ml boild water
-1 bag of pure ginger tee
-1/2 lemon
+200 ml boild water  
+1 bag of pure ginger tee  
+1/2 lemon  
 2 teespoons of honey
