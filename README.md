@@ -6,7 +6,7 @@ This recipes, should make you good to go.
 
 200 ml boiled water  
 1 bag of 100% ginger tee  
-1/2 lemon  
+1/2 lemon (only the juice)  
 2 teespoons of honey
 
 Put everything in a mug, stir it and drink it.
