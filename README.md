@@ -1,6 +1,6 @@
 # Awesome Ginger Tee
 
-You know every developer gets sick from time to time and needs some healthy stuff to get back to work asap. The reasons may vary, maybe you love your job like i do, or you have a shitty boss or anoying client that wants to see your ass back to work.
+You know every developer gets sick from time to time and needs some healthy stuff to get back to work asap. The reasons may vary, maybe you love your job like i do, or you have a shitty boss or annoying client that wants to see your ass back to work.
 
 This recipes, should make you good to go.
 
