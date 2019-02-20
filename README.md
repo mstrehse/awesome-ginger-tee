@@ -8,3 +8,5 @@ This recipes, should make you good to go.
 1 bag of pure ginger tee  
 1/2 lemon  
 2 teespoons of honey
+
+Put everything in a mug, stir it and drink it.
